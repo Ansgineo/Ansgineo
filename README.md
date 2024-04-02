@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... we will see about that
 - 📫 How to reach me ansgar.kuehn@arineo.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I guess I´m too german to think of something funny
+- ⚡ Fun fact: I love mallards 🦆🦆🦆🦆
 
 <!---
 Ansgineo/Ansgineo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
